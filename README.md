@@ -1,0 +1,2 @@
+# kurwlegium
+kirwa nie dotykac
